@@ -36,5 +36,5 @@ Mängd| Ingrediens
 3. Lägg fyllningen i det förgräddade pajskalet.
 4. Bred över créme fraichen.
 5. Skiva tomaterna och täck pajen.
-6. Ganera med riven ost.
+6. Garnera med riven ost.
 7. Grädda i ugnen i 15 minuter.
